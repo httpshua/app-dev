@@ -3,7 +3,7 @@ My first repository
 ## My favorite series
 1. When I Fly Towards You
 
-![WIFTY](<img src="https://dramaslot.com/wp-content/uploads/2023/08/When-I-Fly-Towards-You.webp" width="200" height="100">)
+![WIFTY](https://dramaslot.com/wp-content/uploads/2023/08/When-I-Fly-Towards-You.webp)
 
 2. Reply 1988
 
