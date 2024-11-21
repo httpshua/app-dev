@@ -7,7 +7,7 @@ My first repository
 
 2. Reply 1988
 
-![R88](https://i.pinimg.com/enabled_lo_mid/236x/0d/50/f6/0d50f6bb632cbe80f79b6811f95bdc6c.jpg)
+![R88](https://i.pinimg.com/736x/8a/17/76/8a1776aa9e7fa42e8e43a1295d8a4131.jpg)
 
 3. Twinkling Watermelon
 4. It's Okay to Not Be Okay
