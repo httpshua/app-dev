@@ -19,7 +19,7 @@ My first repository
 
 *6. Alice in Borderland*
 
-![AIB](https://www.google.com/url?sa=i&url=https%3A%2F%2Fjuliajoly.medium.com%2Falice-in-borderland-netflixs-most-underrated-series-e6c33582c36d&psig=AOvVaw3RDs_K_GFsW4aE38KFZelH&ust=1732292418214000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCOC_lK3q7YkDFQAAAAAdAAAAABAE)
+![AIB](https://www.google.com/url?sa=i&url=https%3A%2F%2Fthekeegshow.com%2F2023%2F01%2F03%2Falice-in-borderland-a-great-live-action-manga-adaptation%2F&psig=AOvVaw1ieevg8-UahmqmCa5nwyPE&ust=1732292697082000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCICK0a3r7YkDFQAAAAAdAAAAABAJ)
 
 *7. Sweet Home*
 
