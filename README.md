@@ -1,5 +1,8 @@
 # app-dev
 My first repository
+
+---
+
 ## **MY FAVORITE SERIES**
 *[When I Fly Towards You](https://mydramalist.com/62295-luo-yao-knew-what-he-meant)*
 
@@ -25,15 +28,11 @@ My first repository
 
 ![SH](https://www.kworldnow.com/wp-content/uploads/2021/01/sweet-1.jpg)
 
-## **My favorite movie**
-1. The Witch S1/S2
-2. Transformers
-3. Tokyo Drift
-4. Hitman
-5. John Wick
+---
 
-hi
-
-***
-
-hello
+## **MY FAVORITE MOVIE**
+The Witch
+Transformers
+Tokyo Drift
+Hitman
+John Wick
