@@ -1,6 +1,6 @@
 # app-dev
 My first repository
-## **My favorite series**
+## **MY FAVORITE SERIES**
 *1. When I Fly Towards You*
 
 ![WIFTY](https://dramaslot.com/wp-content/uploads/2023/08/When-I-Fly-Towards-You.webp)
@@ -23,7 +23,7 @@ My first repository
 
 *7. Sweet Home*
 
-![SH](https://www.comingsoon.net/wp-content/uploads/sites/3/2024/07/Untitled-design-2024-07-31T154022.525.png)
+![SH](https://www.kworldnow.com/wp-content/uploads/2021/01/sweet-1.jpg)
 
 ## **My favorite movie**
 1. The Witch S1/S2
