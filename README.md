@@ -5,9 +5,9 @@ My first repository
 
 ![WIFTY](https://dramaslot.com/wp-content/uploads/2023/08/When-I-Fly-Towards-You.webp)
 
-2. Hidden Love
+2. Reply 1988
 
-![HL](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSsV1pgZGRPFMfHTObuDYBhc7oQZwaIGe9raA&s)
+![R88](https://i.pinimg.com/enabled_lo_mid/236x/0d/50/f6/0d50f6bb632cbe80f79b6811f95bdc6c.jpg)
 
 3. Twinkling Watermelon
 4. It's Okay to Not Be Okay
