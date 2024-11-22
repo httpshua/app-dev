@@ -35,3 +35,7 @@
 *[Hitman 2007](https://www.imdb.com/title/tt0465494/)*
 
 *[John Wick]()*
+
+<div style="width: 300px; height: 200px; overflow: auto; border: 1px solid black;">
+  <img src="https://via.placeholder.com/600x400" alt="Example Image" style="max-width: 100%;">
+</div>
