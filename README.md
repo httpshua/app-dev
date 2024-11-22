@@ -19,7 +19,7 @@
 
 ![AIB](https://static.wikia.nocookie.net/drama/images/3/38/Alice_in_Borderland.png/revision/latest?cb=20201217025626)
 
-*[Sweet Home](https://mydramalist.com/34064-sweet-home)* || *[Sweet Home 2](https://mydramalist.com/705721-sweet-home-2)*
+*[Sweet Home](https://mydramalist.com/34064-sweet-home)* || *[Sweet Home 2](https://mydramalist.com/705721-sweet-home-2)* || *[Sweet Home 3](https://mydramalist.com/731187-sweet-home-3)*
 
 ![SH](https://www.kworldnow.com/wp-content/uploads/2021/01/sweet-1.jpg)
 
