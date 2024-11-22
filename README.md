@@ -35,8 +35,3 @@
 *[Hitman 2007](https://www.imdb.com/title/tt0465494/)*
 
 *[John Wick]()*
-
-| Syntax      | Description |
-| ----------- | ----------- |
-| Header      | Title       |
-| Paragraph   | Text        |
