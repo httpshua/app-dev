@@ -15,7 +15,7 @@
 
 ![IONBO](https://ahjummamshies.com/wp-content/uploads/2020/08/pbio-poster.jpg)
 
-*[Alice in Borderland](https://mydramalist.com/39537-imawa-no-kuni-no-arisu)*
+*[Alice in Borderland](https://mydramalist.com/39537-imawa-no-kuni-no-arisu)* || *[Alice in Borderland Season 2](https://mydramalist.com/684373-imawa-no-kuni-no-alice-2)*
 
 ![AIB](https://static.wikia.nocookie.net/drama/images/3/38/Alice_in_Borderland.png/revision/latest?cb=20201217025626)
 
