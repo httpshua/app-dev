@@ -36,3 +36,7 @@
 
 *[John Wick]()*
 
+| Syntax      | Description |
+| ----------- | ----------- |
+| Header      | Title       |
+| Paragraph   | Text        |
