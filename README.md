@@ -26,12 +26,14 @@
 ---
 
 ## **MY FAVORITE MOVIE**
-*[The Witch: Part 1. The Subversion (2018)](https://mydramalist.com/29367-the-witch)* || *[The Witch: Part 2. The Other One (2022)](https://mydramalist.com/43843-the-witch-part-2)*
+*[The Witch: Part 1. The Subversion (2018)](https://mydramalist.com/29367-the-witch)* *||* *[The Witch: Part 2. The Other One (2022)](https://mydramalist.com/43843-the-witch-part-2)*
 
 *[Transformers]()*
 
 *[The Fast and the Furious: Tokyo Drift](https://www.imdb.com/title/tt0463985/)*
 
 *[Hitman 2007](https://www.imdb.com/title/tt0465494/)*
+
+![47](https://lh6.googleusercontent.com/proxy/tDEklBBUsOes5q5ks4CleUFfp70MnG4udme-YgtguU-dxkC4b7UOSd5Ke7qHRgoAjcsfktf7L7TgUkVXSXJOUksf_F_a9rdJsSlFmg)
 
 *[John Wick]()*
