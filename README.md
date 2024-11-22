@@ -37,5 +37,5 @@
 *[John Wick]()*
 
 <div style="width: 300px; height: 200px; overflow: auto; border: 1px solid black;">
-  <img src="https://via.placeholder.com/600x400" alt="Example Image" style="max-width: 100%;">
+  <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRHYW-e5yHzdUTprwde3ijX_lIc_9XAdud4l6X3bPD2fPfh16ZmSUNiQc4&s=10" alt="Example Image" style="max-width: 100%;">
 </div>
