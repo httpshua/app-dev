@@ -36,7 +36,3 @@
 
 *[John Wick]()*
 
-<div style="width: 300px; height: 200px; overflow: auto; border: 1px solid black;">
-  <img src="https://www.kworldnow.com/wp-content/uploads/2021/01/sweet-1.jpg" alt="Example Image"
-<img src="https://www.kworldnow.com/wp-content/uploads/2021/01/sweet-1.jpg" alt="Example Image" style="max-width: 100%;">
-</div>
