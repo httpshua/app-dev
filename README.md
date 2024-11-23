@@ -42,6 +42,6 @@
 
 ![47](https://lh6.googleusercontent.com/proxy/tDEklBBUsOes5q5ks4CleUFfp70MnG4udme-YgtguU-dxkC4b7UOSd5Ke7qHRgoAjcsfktf7L7TgUkVXSXJOUksf_F_a9rdJsSlFmg)
 
-*[John Wick]()*
+*[John Wick]() || [John Wick: Chapter 2](https://www.imdb.com/title/tt4425200/) || []() || []() || []()* 
 
 ![JW](https://wallpapers.com/images/hd/red-aesthetic-art-john-wick-hd-6ia5zmm6kvrchebp.jpg)
