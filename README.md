@@ -15,18 +15,18 @@
 
 ![IONBO](https://ahjummamshies.com/wp-content/uploads/2020/08/pbio-poster.jpg)
 
-*[Alice in Borderland](https://mydramalist.com/39537-imawa-no-kuni-no-arisu)* *||* *[Alice in Borderland 2](https://mydramalist.com/684373-imawa-no-kuni-no-alice-2)*
+*[Alice in Borderland](https://mydramalist.com/39537-imawa-no-kuni-no-arisu) || [Alice in Borderland 2](https://mydramalist.com/684373-imawa-no-kuni-no-alice-2)*
 
 ![AIB](https://static.wikia.nocookie.net/drama/images/3/38/Alice_in_Borderland.png/revision/latest?cb=20201217025626)
 
-*[Sweet Home](https://mydramalist.com/34064-sweet-home)* *||* *[Sweet Home 2](https://mydramalist.com/705721-sweet-home-2)* *||* *[Sweet Home 3](https://mydramalist.com/731187-sweet-home-3)*
+*[Sweet Home](https://mydramalist.com/34064-sweet-home) || [Sweet Home 2](https://mydramalist.com/705721-sweet-home-2) || [Sweet Home 3](https://mydramalist.com/731187-sweet-home-3)*
 
 ![SH](https://www.kworldnow.com/wp-content/uploads/2021/01/sweet-1.jpg)
 
 ---
 
 ## **MY FAVORITE MOVIE**
-*[The Witch: Part 1. The Subversion (2018)](https://mydramalist.com/29367-the-witch)* *||* *[The Witch: Part 2. The Other One (2022)](https://mydramalist.com/43843-the-witch-part-2)*
+*[The Witch: Part 1. The Subversion (2018)](https://mydramalist.com/29367-the-witch) || [The Witch: Part 2. The Other One (2022)](https://mydramalist.com/43843-the-witch-part-2)*
 
 ![WITCH](https://media-cache.cinematerial.com/p/500x/eqtr1ta6/the-witch-part-1-the-subversion-south-korean-movie-poster.jpg?v=1529184164)
 
